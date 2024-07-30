@@ -8,3 +8,4 @@
 
 ## фото
 
+![U2zPWUVoKJQ](https://github.com/user-attachments/assets/7bf2929e-0a0c-482c-ace1-8fa761dec26f)
